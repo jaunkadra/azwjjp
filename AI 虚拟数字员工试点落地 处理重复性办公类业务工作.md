@@ -1,0 +1,106 @@
+AI 虚拟数字员工试点落地 处理重复性办公类业务工作<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E4%BA%AC%E8%BE%B0%E6%B3%A8%E5%86%8C(435%2F999)qjqa.html
+<br><br>
+城市郊野公园持续扩容 方便市民短途亲近大自然<br>| 来源：https://www.baidu.com/BAIDU?CL=77&WORD=%E8%80%80%E4%B8%96%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E4%B8%BB%E7%AE%A1(9XK%E7%82%B9CC)
+<br><br>
+社区食堂优化 夏季清凉餐食惠及居民	<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86(9XK%E5%9E%ABCC)TaK.html
+<br><br>
+城市共享单车头盔租赁试点 解决骑行头盔痛点<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%9C%E9%82%A6%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E8%82%A1%E4%B8%9C(435%2F999)q.CgAe8
+<br><br>
+城市宠物医疗门诊增加 专科宠物医院数量上涨<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%9A%E5%B8%8C%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).UySwQ
+<br><br>
+香薰家居品类持续热销 东方调香型收获年轻群体<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%95%BF%E5%BE%81%E5%A8%B1%E4%B9%90%E5%BC%80%E6%88%B7(9XK%E5%9E%ABCC).jDhBf
+<br><br>
+新能源车涉水安全规范 暴雨行车防护指南	<br>| 来源：https://www.baidu.com/BAIDU?CL=03&WORD=%E6%81%A9%E4%BD%90%E4%B8%BB%E7%AE%A1(9XK%E5%BA%97CC)
+<br><br>
+除湿机在南方市场销量上涨 应对梅雨季潮湿环境<br>| 来源：https://so.sina.cn/search/list.d.html?keyword=%E6%98%9F%E6%AC%A7%E5%BC%80%E6%88%B7(9XK%E5%BA%97CC)0xO.html
+<br><br>
+AI 智能物流配送优化 末端配送成本时效双改善	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%BC%97%E8%85%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E5%BD%95(435.999)q.SCgAe
+<br><br>
+非遗手工夏令营，学习剪纸陶艺扎染传统技艺<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%8E%E4%BF%A12%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7%20(9XK%E6%AE%BFCC).8c6a4
+<br><br>
+高温药品储存科普 提示部分药品需要进行冷藏保存<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%A1%BA%E7%9B%88%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E6%AE%BFCC).VFjDh
+<br><br>
+非遗手工夏令营，学习剪纸陶艺扎染传统技艺<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%B8%87%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E6%B3%A8%E5%86%8C(435.999)q.BvPtN
+<br><br>
+城市汛期避险科普，暴雨不要冒险涉水过马路<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%8E%E4%BF%A1%E6%B3%A8%E5%86%8C%E5%9C%B0%E5%9D%80(9XK%E5%BA%97CC).SCgAe
+<br><br>
+城市人行道遮阳设施改造 改善行人夏季通行体验感受<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%95%BF%E5%AE%89%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C(9XK%E7%94%B8CC).BvPtN
+<br><br>
+充电桩错峰电价试点 引导车主避开高峰时段充电<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%8F%E5%AE%87%E5%B9%B3%E5%8F%B0(9XK%E6%AE%BFCC).kUyRv
+<br><br>
+文创盲盒热度回落 市场回归产品本身品质竞争<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%AE%9Dgg%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%EF%BB%BF(435999)q.a4Y2W
+<br><br>
+AI 人才培养校企合作增加 输出产业需要技术人才<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%AC%A7%E7%9A%87%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E5%BC%80%E6%88%B7(9XK%E6%AE%BFCC).lFjDh
+<br><br>
+乡村无线降噪耳机新品迭代 续航降噪持续进步<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%AC%A7%E7%9A%87%E4%B8%BB%E7%AE%A1(9XK%E7%94%B8CC).X1VzT
+<br><br>
+暑期户外出行急救包科普，配齐基础应急小物件<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E8%93%9D%E5%9B%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E5%BA%97CC).mW0Uy
+<br><br>
+农产品溯源 扫码查看生产全过程<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%85%88%E9%94%8B%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E6%AE%BFCC).O8c6a
+<br><br>
+虚拟电厂聚合能力提升 电网柔性调节资源丰富	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E8%B5%A2%E5%92%964%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E6%A0%B7(9XK%E5%BA%97CC).7rLpJ
+<br><br>
+儿童冷饮食用提醒，过量吃冰刺激肠胃诱发不适<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9E%81%E6%82%A6%E5%A8%B1%E4%B9%90%E5%BE%85%E9%81%87(9XK%E5%9E%ABCC).lVzTx
+<br><br>
+老年人饮食 清淡少盐健康指南	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%91%A9%E5%A4%A92%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C(9XK%E5%9E%ABCC).4oImG
+<br><br>
+社区咖啡店增长 邻里社交属性凸显优势	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=AG%20%E7%9C%9F%E4%BA%BA%E7%BD%91%E7%AB%99%E7%BD%91%E5%9D%80(435.999)q.OsMqK
+<br><br>
+萤火虫观赏地迎来夏季，专家呼吁拒绝捕捉野生物种<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8D%A7%E9%BE%99%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80(9XK%E7%82%B9CC).VzxRv
+<br><br>
+城市候鸟栖息城市湿地 设置隔离带减少人为干扰<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%90%88%E6%99%AF%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95(9XK%E7%82%B9CC).O8c6a
+<br><br>
+长鑫科技科创板上市，多日成交额规模惊人<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%BE%AE%E4%BF%A1%E5%8A%A0%E6%8B%BF%E5%A4%A728%E6%89%AB%E6%8F%8F%E4%BA%8C%E7%BB%B4%E7%A0%81%EF%BB%BF(435999)q.td7b5
+<br><br>
+城市便携宠物降温马甲上市 缓解宠物户外燥热<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%A1%BA%E7%99%BE%E4%BA%8B%E8%BE%BE%E5%A8%B1%E4%B9%90(9XK%E7%82%B9CC).2mGkE
+<br><br>
+城市无障碍文旅设施完善 便利残障群体出行游玩<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%8F%E8%80%80%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%EF%BB%BF(435999)q.DhBf9
+<br><br>
+城市便携宠物饮水碗食盆热销 带宠出游刚需好物<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%BC%98%E8%B4%9D%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F(9XK%E7%94%B8CC).NrLpJ
+<br><br>
+开源大模型生态走向成熟 开发者参与规模保持持续上涨<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%81%92%E6%82%A6%E5%A8%B1%E4%B9%90(9XK%E5%9E%ABCC).2mGki
+<br><br>
+城市不要捕捉萤火虫售卖 留给原生栖息环境<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%87%91%E6%B4%8B5%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%EF%BB%BF(435999)q.bLpJn
+<br><br>
+玩具交换市集受到家长欢迎，减少玩具闲置浪费<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%87%91%E6%B4%8B6%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E6%B3%A8%E5%86%8C(9XK%E7%94%B8CC).8sMqK
+<br><br>
+瓶装电解质水销量攀升 高温带动功能饮料消费<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%BE%B3%E6%B4%B2%E5%B9%B8%E8%BF%905%E9%9D%A0%E8%B0%B1%E5%A4%A7%E7%BE%A4%E5%AE%9E%E5%8A%9B%E8%80%81%E7%BE%A4(9XK%E7%94%B8CC).rLpJn
+<br><br>
+生鲜冷链物流升级，减少夏季运输食材损耗率<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%8F%8C%E8%B5%A2%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E6%B3%A8%E5%86%8C(435.999)q.EySwQ
+<br><br>
+异宠饲养规范 野生动物禁止私养<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%8F%E5%AE%872%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95(435%2F999)q.pJnHl
+<br><br>
+乒乓球全锦赛马龙许昕组合闯入男双八强<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%9D%9C%E9%82%A6%E5%BE%85%E9%81%87(9XK%E7%94%B8CC).Z3X1z
+<br><br>
+赶海亲子项目 潮汐预报服务更便捷	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%B1%87%E8%B5%A2%E5%A8%B1%E4%B9%90%E6%B3%A8%E5%86%8C%E8%82%A1%E4%B8%9C(9XK%E6%AE%BFCC).uOsMq
+<br><br>
+AI 环境监测设备部署野外 自动采集生态环境监测数据<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E8%BE%89%E5%B9%B3%E5%8F%B0%E8%82%A1%E4%B8%9C%EF%BB%BF(435999)q.wQuOs
+<br><br>
+AI 智能能源品牌建设 国产能源技术影响力提升	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E8%BE%B0%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86(9XK%E6%AE%BFCC).sc6a4
+<br><br>
+林下经济推广 农户增收新路径<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E5%9C%A8%E7%BA%BF%EF%BB%BF(435999)q.xRvPt
+<br><br>
+旧货交换集市定期开市 激活城市闲置物资流转<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90(9XK%E6%AE%BFCC).pZX1V
+<br><br>
+博物馆 XR 体验 沉浸式感受历史文化	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%95%BF%E8%BF%90%E6%80%BB%E4%BB%A3(9XK%E6%AE%BFCC).oImGk
+<br><br>
+闲置数码设备回收规范，保护用户个人数据安全<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E7%8E%A9%E5%AE%B6%E6%97%B6%E4%BB%A3%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).nue86
+<br><br>
+Title：家庭清洁省力妙招
+
+现代生活节奏紧张，很多人长期久坐不动，频繁使用手机电脑，身体容易出现各种亚健康问题。想要调理身体不需要昂贵产品，坚持日常微小习惯就能持续改善状态。
+久坐人群每小时起身拉伸肩颈腰背，简单活动促进血液循环，能有效预防颈椎腰椎酸痛，适合办公室人群日常操作。
+日常饮食减少重油重盐，多摄入新鲜果蔬，三餐定时定量，不暴饮暴食，温和饮食能长期保护肠胃健康。
+睡前一小时远离手机、平板等发光设备，昏暗安静的环境更容易进入深度睡眠，长期固定作息可以明显提升白天精神。
+现代生活节奏紧张，很多人长期久坐不动，频繁使用手机电脑，身体容易出现各种亚健康问题。想要调理身体不需要昂贵产品，坚持日常微小习惯就能持续改善状态。
+日常饮食减少重油重盐，多摄入新鲜果蔬，三餐定时定量，不暴饮暴食，温和饮食能长期保护肠胃健康。
+汽车底盘防护技术迭代 提升复杂路况通过性能<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86(9XK%E7%94%B8CC).iCgAe
+<br><br>
+户用光伏安装避坑指南 普通农户安装光伏要注意什么<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E4%B8%87%E5%90%91%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.Z3X1V
+<br><br>
+城市塑料回收再生技术升级 再生材料用于家居服饰<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E5%A4%A9%E7%BE%8E3%E6%8B%9B%E5%95%86(9XK%E5%BA%97CC).FjDhB
+<br><br>
+桨板安全科普发布，初学者务必穿戴救生衣下水<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E6%98%9F%E8%BF%90%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1%EF%BB%BF(435999)q.yiCgA
+<br><br>
+汽车露营经济兴起 车载配套产品销量增长	<br>| 来源：https://www.cupk.edu.cn/zcms/search/result?SiteID=125&Query=%E9%95%BF%E5%BE%81%E4%B8%BB%E7%AE%A1(9XK%E5%9E%ABCC).Ae8c6
+<br><br>
